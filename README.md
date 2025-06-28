@@ -1,0 +1,1 @@
+# splinterlands-card-combat-earn-guide
